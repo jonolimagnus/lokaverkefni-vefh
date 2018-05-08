@@ -7,4 +7,7 @@ framleiðenda fyrirtækið var santa monica studios og höfundir eru Elizabeth D
 notenudr leiksins eru eru mjög líklega frá aldirnum 16-25 eða bara þeir sem elskuðu fyrri leikinna og þeim sem líkar við hasarleiki.
 leikurinn kom út fyrir svona sirka bát nokkrum vikum síðan og hefur feingið mjög góða dóma þokks ´se að leikurinn er einn af fáum nú til dags sem notar ekki microtransection þar sem þú þarft að kaupa hluti með alvöru peningum í leiknum til komast lengra fljótari.
 þessi leikur er bæði reboot og sequel fyir seriuna þar sem þeir eru komnir úr grískri trú ifir í ásatrú og á að fylgja sögu Kratos og syni hans í þeim heimi.
+
 <img style="-webkit-user-select: none;" src="https://media5.picsearch.com/is?i8os24mQgnNfZxpjUhlqx_bjzxAfC6FTomWjKY3L1qw&amp;height=191">
+
+<img style="-webkit-user-select: none;" src=http://static.gamespot.com/uploads/screen_small/1197/11970954/3294848-trailer_gow_firetroll_20170928.jpg;height=191">
